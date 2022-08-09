@@ -12,3 +12,4 @@ khana khaya ?
 anime dekha ?
 books read kari ?
 internship gaye the aaj ?
+kya bolte maam ?
