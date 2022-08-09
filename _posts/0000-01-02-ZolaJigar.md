@@ -1,0 +1,1 @@
+{I am zola jigar... i am from mundra...currently i am doing my masters in M.Sc(Ca/It) final year of kachchh university bhuj.....i am 20 years old...i love anime reading novels & books....... thank you guyz i love coding}
